@@ -74,4 +74,4 @@ This project demonstrates how data analytics and machine learning can be used to
 **Daksh Koli**  
 Data Analytics Intern  
 
-📎 LinkedIn: *Daksh Koli*  
+📎 LinkedIn: *www.linkedin.com/in/daksh-koli-577b7a332*  
